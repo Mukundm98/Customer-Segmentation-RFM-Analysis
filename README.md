@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mukundm98
+- 👋 Hi, I’m Mukund Mohan Mohapatra
 - 👀 I’m interested in Business analytics
 - 🌱 I’m currently pursuing PGDM in Business Analytics, Consumer Insights & Market Intelligence.
 - 📫 Reach me on Linkedin https://www.linkedin.com/in/mukund-mohan-mohapatra-047803117
